@@ -1,4 +1,3 @@
-# 💫 
-23, I love Building and Breaking things.
+# 💫 23, I love Building and Breaking things.
 
  
